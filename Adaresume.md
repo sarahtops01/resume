@@ -1,7 +1,6 @@
 # 		**✿**                                   🌺`SARAH ◇ CAMPBELL`🌺                                      	**✿**  
-SEATTLE ⫷ 503-784-8759 ⫸ SARAHCAMPBELL307@GMAIL.COM
-
-*I’m energetic, obsessed with details, and driven to challenge myself and make others’ lives better. For the past nine years I have been a physical therapist assistant, and now I am on a quest for my next craft: one that grants me the ability to bring  joy to others while working with an inspiring team.*
+`SEATTLE ⫷ 503-784-8759 ⫸ SARAHCAMPBELL307@GMAIL.CIOM
+I'm energetic, obsessed with details, and driven to challenge myself and make others’ lives better. For the past nine years I have been a physical therapist assistant, and now I am on a quest for my next craft: one that grants me the ability to bring  joy to others while working with an inspiring team.*
 
 ## EDUCATION 🎓
 * Northeast Wisconsin Technical College Associate’s Degree, Physical Therapist Assistant ▹ May 2005
