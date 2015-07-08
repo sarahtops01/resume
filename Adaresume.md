@@ -41,8 +41,7 @@ CPR certified, certified clinical instructor, APTA recognition for advanced prof
 - Boy Scouts of America ▹ organizer and speaker ￼
 
 [Click Here To Check Out My Blog!](https://toppedwithlove.wordpress.com/)
-�
-▶︎▷‣▹►▲△➢➣✢✤✪✿❂❁⌘⎰⎰⎪ ♦︎ ⇢ ➳⁍❖ ⭐️🌟🏫
+
 
 
 
