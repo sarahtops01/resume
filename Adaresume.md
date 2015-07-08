@@ -1,11 +1,10 @@
 
-#     ￼🌺 `SARAH ◇ CAMPBELL` 🌺 
-<figure><img src=“https://lh5.googleusercontent.com/-KKY2rkMP0E0/AAAAAAAAAAI/AAAAAAAAAAA/nSSFv1BVJKM/s36-c-k/photo.jpg” alt=“image”></figure>     
+SARAH ◇ CAMPBELL� 
 SEATTLE ⫷ 503-784-8759 ⫸ SARAHCAMPBELL307@GMAIL.COM
 
 *I’m energetic, obsessed with details, and driven to challenge myself and make others’ lives better. For the past nine years I have been a physical therapist assistant, and now I am on a quest for my next craft: one that grants me the ability to bring  joy to others while working with an inspiring team.*
 
-## 🎓 EDUCATION
+## 🎓EDUCATION
 * Northeast Wisconsin Technical College Associate’s Degree, Physical Therapist Assistant ▹ May 2005
 * Received yearly physical therapy continuing education ▹ 2005–2014
 ## 🏥 WORK EXPERIENCE
@@ -34,11 +33,11 @@ CPR certified, certified clinical instructor, APTA recognition for advanced prof
 ## 🙏 VOLUNTEER EXPERIENCE
 - Yoga Behind Bars￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼ ▹ clerical duties 
 - Catalyze Labs ▹ portfolio coordinator 
-- Boy Scouts of America ▹ organizer and speaker 
+- Boy Scouts of America ▹ organizer and speaker ￼
 
 [Check Out My Blog!](https://toppedwithlove.wordpress.com/)
 
-▶︎▷‣▹►▲△➢➣✢✤✪✿❂❁⌘⎰⎰⎪ ♦︎ ⇢ ➳⁍❖ ⭐️🌟🏫☝️📈
+▶︎▷‣▹►▲△➢➣✢✤✪✿❂❁⌘⎰⎰⎪ ♦︎ ⇢ ➳⁍❖ ⭐️🌟🏫☝️📈￼�
 
 
 
