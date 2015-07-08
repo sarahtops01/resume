@@ -1,4 +1,4 @@
-# 												🌺`✿SARAH ◇ CAMPBELL✿`🌺
+# 		**✿**                                   🌺`SARAH ◇ CAMPBELL`🌺                                      	**✿**  
 SEATTLE ⫷ 503-784-8759 ⫸ SARAHCAMPBELL307@GMAIL.COM
 
 *I’m energetic, obsessed with details, and driven to challenge myself and make others’ lives better. For the past nine years I have been a physical therapist assistant, and now I am on a quest for my next craft: one that grants me the ability to bring  joy to others while working with an inspiring team.*
@@ -8,7 +8,7 @@ SEATTLE ⫷ 503-784-8759 ⫸ SARAHCAMPBELL307@GMAIL.COM
 * Received yearly physical therapy continuing education ▹ 2005–2014
 
 ## 🏥WORK EXPERIENCE
-###### Physical Therapist Assistant
+##### Physical Therapist Assistant
 * Mirabella Retirement Community Portland, OR ▹ June 2011 - 2014
 * PeaceHealth St. John Medical Center Longview, WA ▹ June 2010 - 2011
 * Wheaton Franciscan Healthcare All Saints Racine, WI ▹ June 2005 - 2010
