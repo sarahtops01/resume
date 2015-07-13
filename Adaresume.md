@@ -7,11 +7,11 @@
 * Northeast Wisconsin Technical College Associate’s Degree, Physical Therapist Assistant ▹ May 2005
 * Received yearly physical therapy continuing education ▹ 2005–2014
 
-## WORK EXPERIENCE🏥
+## WORK EXPERIENCE 🏥
 ##### Physical Therapist Assistant
-* Mirabella Retirement Community Portland, OR ▹ June 2011 - 2014
-* PeaceHealth St. John Medical Center Longview, WA ▹ June 2010 - 2011
-* Wheaton Franciscan Healthcare All Saints Racine, WI ▹ June 2005 - 2010
+* Mirabella Retirement Community ▹ Portland, OR ▹ June 2011 - 2014
+* PeaceHealth St. John Medical Center ▹ Longview, WA ▹ June 2010 - 2011
+* Wheaton Franciscan Healthcare All Saints ▹ Racine, WI ▹ June 2005 - 2010
 
 ## RESPONSIBILITIES 🎩
 + Provided individualized patient care in outpatient neurological, orthopedic, geriatric, and acute care settings
